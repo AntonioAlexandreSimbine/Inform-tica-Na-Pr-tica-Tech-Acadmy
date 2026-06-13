@@ -1,0 +1,1 @@
+# Inform-tica-Na-Pr-tica-Tech-Acadmy
